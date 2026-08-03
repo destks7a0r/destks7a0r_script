@@ -1,0 +1,1 @@
+# destks7a0r_script
